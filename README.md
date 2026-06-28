@@ -1,9 +1,5 @@
 # agent
 
-https://postimg.cc/XZXXJGx8
-
-
-
 hello ther,
 Pony town stuff: if i have dni or dniucf in my name is the only time you shouldnt interact since i only use dniuf when i like a spot but im not comfortable with crowds
 c+h heavily appreciated! stranger or a different fandom? oc?? hell anything, i lov seeing pixel ponies happy,,,
